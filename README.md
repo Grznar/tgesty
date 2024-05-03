@@ -1,1 +1,1 @@
-Vytvořili Jakub Dalibor Fejta a Jakub Černoch, (Nicolas nikoho nezajímá)
+Vytvořili Jakub Dalibor Fejta a Jakub Černoch, (NiKolas nikoho nezajímá)
