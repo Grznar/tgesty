@@ -1,1 +1,1 @@
-Vsechno delal Jakub Libor Fejta
+Vytvořili Jakub a Jakub
